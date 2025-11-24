@@ -2,7 +2,7 @@
 
 ### **1. Worship God Alone**
 
-No other gods
+No other gods but the Most High, the God of Israel, the God of Truth
 
 ### **2. No Idolatry**
 
