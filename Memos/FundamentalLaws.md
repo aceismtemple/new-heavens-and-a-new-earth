@@ -1,14 +1,14 @@
-# **10 Foundational Laws & Tenets**
+# **10 Fundamental Laws**
 
 ### **1. Worship God Alone**
 
 No other gods but the Most High, the God of Israel, the God of Truth
 
-### **2. No Idolatry**
+### **2. Do Not Worship Idols**
 
 Do not make or worship idols or images
 
-### **3. Honor God’s Name**
+### **3. Do Not Blaspheme**
 
 Do not misuse or dishonor God’s name
 
@@ -20,7 +20,7 @@ Value and respect all individuals
 
 Human life is sacred. Do not take another person’s life unjustly
 
-### **6. Prohibition of Sexual Immorality**
+### **6. Do Not Commit Sexual Immorality**
 
 Forbidden relationships include adultery, incest and bestiality.
 
@@ -34,8 +34,8 @@ Uphold truth, especially in judgment
 
 ### **9. Establish Courts of Justice**
 
-Abide fair laws and systems of justice.
+Setup or abide fair laws and systems of justice. 
 
-### **10. Respect for Animals**
+### **10. Respect Animals**
 
 No cruelty. Includes eating meat taken from an animal that is still alive.
