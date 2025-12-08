@@ -1,6 +1,6 @@
 # **10 Fundamental Laws**
 
-### **1. Worship God Alone**
+### **1. Worship HaShem Alone**
 
 Worship the Most High, the God of Israel, the God of Truth
 
@@ -10,7 +10,7 @@ Do not make or worship idols or images.
 
 ### **3. Do Not Blaspheme**
 
-Do not misuse or dishonor God’s name
+Do not misuse or dishonor HaShem’s name
 
 ### **4. Respect All People**
 

@@ -25,7 +25,7 @@ They pray **toward the Temple Mount**.
 
 This practice comes from:
 
-* **1 Kings 8:44–48**, where Solomon prays that God will hear the prayers of the people “when they pray toward this place.”
+* **1 Kings 8:44–48**, where Solomon prays that HaShem will hear the prayers of the people “when they pray toward this place.”
 * **Talmud, Berakhot 30a**, which instructs that one should direct their heart and body toward the Temple.
 
 ### Practical custom

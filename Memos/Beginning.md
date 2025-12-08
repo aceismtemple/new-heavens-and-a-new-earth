@@ -14,7 +14,7 @@ but under the name of **the God of Abraham, the God of Isaac, and the God of Jac
 the One who revealed Himself to Israel,
 the One who keeps covenant and mercy to a thousand generations.
 
-From the days when God called Abraham out of Ur,
+From the days when HaShem called Abraham out of Ur,
 saying *“Walk before Me and be thou perfect,”*
 the Almighty has always searched for those
 who would set themselves apart,
@@ -35,12 +35,12 @@ We stand here because we believe, as Joshua said to Israel:
 
 We believe the words spoken through Moses:
 
-> *“Hear, O Israel: The LORD our God, the LORD is One.”*
+> *“Hear, O Israel: The Adonai Eloheinu, the LORD is One.”*
 
-We believe that the God who parted the sea,
+We believe that the HaShem who parted the sea,
 who spoke from the mountain,
 who guided Israel by cloud and fire,
-is still the living God today.
+is still the living God of Israel today.
 
 And so we gather to form a people
 who honor His commandments,
@@ -59,11 +59,11 @@ Our purpose is simple—but holy:
 
 May this group become a light in dark places,
 a remnant devoted to the covenant,
-a people who fear God and keep His commandments.
+a people who fear HaShem and keep His commandments.
 
 As Solomon prayed:
 
-> *“Let your heart therefore be perfect with the LORD our God.”*
+> *“Let your heart therefore be perfect with the Adonai Eloheinu.”*
 
 Let this be our banner.
 Let this be our identity.

@@ -26,11 +26,11 @@
 ### 3. Meaning of the Name
 
 * The name YHWH is linked to the Hebrew verb **“to be”** (*hayah*).
-* In Exodus 3:14, God says to Moses:
+* In Exodus 3:14, HaShem says to Moses:
 
   > “I am who I am” (*Ehyeh Asher Ehyeh*)
 * So YHWH conveys **existence itself, eternal being, and self-sufficiency**.
-* It emphasizes that God is **not dependent on anything** and is the source of all life.
+* It emphasizes that HaShem is **not dependent on anything** and is the source of all life.
 
 ---
 
@@ -44,10 +44,9 @@
 
 ### 5. Key Takeaways
 
-* YHWH = the **unique, ineffable name of God** in Jewish tradition.
-* It signifies **God’s eternal existence**.
+* YHWH = the **unique, ineffable name of HaShem** in Jewish tradition.
+* It signifies **HaShem’s eternal existence**.
 * In practice, Jews **don’t say it aloud**, using *Adonai* or *HaShem* instead.
-* Using it consciously in writing or thought is a way to connect with the **Jewish concept of God**, distinct from Christian reinterpretations.
 
 ---
 
@@ -126,7 +125,7 @@ If you want to avoid Christian connotations, consider these options:
 ### ✅ Recommendation
 
 * **For clarity in a Jewish context in Tagalog:**
-  Use **Elohim** or **HaShem** if addressing God directly in prayer or discussion.
+  Use **Elohim** or **HaShem** if addressing The God of Israel directly in prayer or discussion.
   For descriptive references (*“Almighty”* or *“God of Israel”*), **Makapangyarihan sa lahat** or **Diyos ng Israel** works without fully Christianizing the term.
 
 * **Avoid using plain *Diyos*** if you want to clearly distance from Christian connotations, because culturally it almost always points to the Christian God today.

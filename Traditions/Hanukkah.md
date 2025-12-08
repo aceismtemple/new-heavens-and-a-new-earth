@@ -53,7 +53,7 @@ Against overwhelming odds, they:
 
 # ✨ The Rededication (Where the word Hanukkah comes from)
 
-The Temple was cleansed and rededicated to God.
+The Temple was cleansed and rededicated to HaShem.
 **Hanukkah literally means “dedication.”**
 
 They wanted to relight the **menorah**, but:
@@ -170,8 +170,8 @@ This one is lit first and used to light the rest.
 You say **three blessings**:
 
 1. Blessing over the candles
-2. Blessing thanking God for miracles
-3. *Shehecheyanu* (thanking God for reaching this occasion)
+2. Blessing thanking HaShem for miracles
+3. *Shehecheyanu* (thanking HaShem for reaching this occasion)
 
 **On nights 2–8**:
 You say **only the first two blessings**.

@@ -66,14 +66,14 @@ the **nation** and **geographic land** of Israel.
 
 > “I have refined thee… in the furnace of affliction.”
 
-God speaks this to **literal Israel**.
+HaShem speaks this to **literal Israel**.
 
 ### **Malachi 3:2–3**
 
 > “He shall sit as a refiner… and purify the sons of Levi.”
 > Levi is a literal tribe in a literal land.
 
-The refining fire is God’s national purification of **Israel**, not a metaphor for a church.
+The refining fire is HaShem’s national purification of **Israel**, not a metaphor for a church.
 
 ---
 
