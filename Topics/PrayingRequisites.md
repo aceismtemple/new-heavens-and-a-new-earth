@@ -77,7 +77,7 @@ Then, like Elijah, we can stand before HaShem **with confidence**, because our h
  Daniel 9 contains one of the most remarkable examples: as Daniel is still praying, the angel Gabriel arrives *swiftly*. A response from heaven before the prayer is even finished.
 
 But why?
-What was it about Daniel that aligned him so closely with God’s heart?
+What was it about Daniel that aligned him so closely with HaShem’s heart?
 
 Let us look not at his words alone, but at the **condition of his heart**, the **posture of his soul**, and the **discipline of his life**.
 
@@ -87,15 +87,15 @@ Let us look not at his words alone, but at the **condition of his heart**, the *
 
 ### *Daniel 9:3 — “I set my face unto the Lord… with fasting, and sackcloth, and ashes.”*
 
-Daniel approached God not with pride, not with entitlement, but with deep humility. Fasting, sackcloth, and ashes were signs of genuine brokenness and reverence before God.
+Daniel approached HaShem not with pride, not with entitlement, but with deep humility. Fasting, sackcloth, and ashes were signs of genuine brokenness and reverence before HaShem.
 
-Throughout the Old Testament, God is consistently drawn to humility:
+Throughout the Old Testament, HaShem is consistently drawn to humility:
 
 ### **Psalm 51:17**
 
-> *“A broken and a contrite heart, O God, thou wilt not despise.”*
+> *“A broken and a contrite heart, O HaShem, thou wilt not despise.”*
 
-Daniel’s heart was in the condition God never despises—contrite, surrendered, broken before Him.
+Daniel’s heart was in the condition HaShem never despises—contrite, surrendered, broken before Him.
 
 Heaven responds to humble hearts.
 
@@ -103,11 +103,11 @@ Heaven responds to humble hearts.
 
 ## **DANIEL’S FASTING OPENED A CLEAR CHANNEL TO HEAVEN**
 
-Fasting does not force God to act.
+Fasting does not force HaShem to act.
 But fasting **positions us** to hear, to see, and to receive.
 
 Daniel’s fasting wasn’t merely abstaining from food—it was an attitude of surrender.
-He denied himself to give God full attention.
+He denied himself to give HaShem full attention.
 
 The Old Testament reveals the power of fasting:
 
